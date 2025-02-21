@@ -4,6 +4,6 @@ Ola🤸🏾‍♂️.Eu sou o Davi!🥸
 
 Aqui serão encontrado codigos cridados em sala de aula 🍫.
 
-◆🍔Atualemte estou estudando. 
+◆🍔Atualmente estou estudando. 
 
 ◆🍕Eu gosto de comer pizza.
